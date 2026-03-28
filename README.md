@@ -1,6 +1,6 @@
 
 ![gif](
-https://i.pinimg.com/1200x/8f/2b/cd/8f2bcd8b45af8667980345c7bf7b4e1f.jpg)
+https://i.pinimg.com/originals/cc/b3/78/ccb378cac68bf8c77d694d3d09ad93d9.gif)
 <p align="center">
 제 홈 파일 파일을 읽어주셔서 감사합니다.
  </p>
